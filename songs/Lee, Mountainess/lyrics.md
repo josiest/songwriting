@@ -4,6 +4,7 @@ to lie to you
 ..  
 ..
 
+### Verse II
 ~the pack of the hunter  
 caught up with the fox  
 now she's hiding away  
@@ -13,7 +14,7 @@ now she's hiding away
 ~Lee, come down  
 ~Bring him home
 
-### Verse II
+### Verse III
 ~Twelve jagged edges  
 Wouldn't match my pain  
 ~From your ignorance  
@@ -39,7 +40,7 @@ Without you
 My love I cannot fall  
 Any further
 
-### Verse III
+### Verse IV
 ~My sweet, mountainess  
 I have not forgotten you  
 ~Live on and be grateful  
