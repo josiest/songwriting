@@ -20,3 +20,4 @@ to serve as a reference
 
 - '~' subject to change
 - '--' to be filled in
+- '/' separates potential titles
