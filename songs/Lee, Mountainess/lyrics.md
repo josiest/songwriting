@@ -1,13 +1,13 @@
 ### Verse I
 ~seemingly infinite  
-~well I draw from
+~well I draw from  
 ~to lie through my teeth  
 ~when talking to you
 
 ### Verse II
-~the pack of the hunter  
+~the pack of the wolf  
 caught up with the fox  
-now she's hiding away  
+~now she's hiding away  
 ~away on the rocks
 
 ### Chorus
@@ -22,14 +22,14 @@ I now hold in vain
 
 ### Chorus
 Tired of waiting  
-For anything from me
+For me
 
 ### Bridge I
-Bring back my lover, today  
+Bring back my love, today  
 Ah, I would
 
-Bring back my lover, today  
-~The lie, the pain, the heart that was slain  
+Bring back my love, today  
+~A lie into pain, the heart that was slain  
 ~By I only know who
 
 ### Bridge II
@@ -41,7 +41,7 @@ My love I cannot fall
 Any further
 
 ### Verse IV
-~My sweet, mountainess  
+~My sweet mountainess  
 I have not forgotten you  
-~Live on and be grateful  
+~Move on and be grateful  
 I owe it to you
