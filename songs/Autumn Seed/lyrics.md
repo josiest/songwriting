@@ -31,6 +31,8 @@ Even stronger than before
 And the snow falls down  
 To the aging ground you seek  
 
+### Pre-Verse
+
 ### Bridge II
 Listen to them calling out  
 Calls the breeze of the wind  
