@@ -5,13 +5,13 @@
 ~when talking to you
 
 ### Verse II
-~And now that I've missed
-~Any chance that I'd got
-Every moment I'm with you
+~And now that I've missed  
+~Any chance that I'd got  
+Every moment I'm with you  
 ~Is salt in the wound
 
 ### Chorus
-Ellie,
+Ellie,  
 ~Bring me down
 
 ### Verse III
