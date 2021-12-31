@@ -22,6 +22,8 @@ The eye of the storm and the calm of the stream
 But when the sun goes away, the waves will then sing  
 That you should be on your way back home  
 
+### Pre-Verse
+
 ### Bridge I
 'Cuz then the eye of the storm will freeze  
 And the calm of the stream will freeze  
@@ -30,8 +32,6 @@ They will crash against the shore
 Even stronger than before  
 And the snow falls down  
 To the aging ground you seek  
-
-### Pre-Verse
 
 ### Bridge II
 Listen to them calling out  
