@@ -5,14 +5,14 @@
 ~when talking to you
 
 ### Verse II
-~the pack of the wolf  
-caught up with the fox  
-~now she's hiding away  
-~away on the rocks
+~And now that I've missed
+~Any chance that I'd got
+Every moment I'm with you
+~Is salt in the wound
 
 ### Chorus
-~Lee, come down  
-~Bring him home
+Ellie,
+~Bring me down
 
 ### Verse III
 ~Twelve jagged edges  
