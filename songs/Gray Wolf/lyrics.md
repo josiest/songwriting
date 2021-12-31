@@ -1,0 +1,14 @@
+### Verse I
+gray, gray, gray wolf  
+why won't you  
+why won't you  
+howl, howl, howl  
+at the moon  
+at the moon  
+your pack has left you too
+
+### Verse II
+--
+
+### Verse III
+--
