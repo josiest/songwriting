@@ -1,8 +1,8 @@
 ### Verse I
-~infinite wisdom  
-to lie to you  
-..  
-..
+~seemingly infinite  
+~well I draw from
+~to lie through my teeth  
+~when talking to you
 
 ### Verse II
 ~the pack of the hunter  
@@ -17,12 +17,12 @@ now she's hiding away
 ### Verse III
 ~Twelve jagged edges  
 Wouldn't match my pain  
-~From your ignorance  
-~I now hold in vain
+~From my own lack of courage
+I now hold in vain
 
 ### Chorus
 Tired of waiting  
-To show you
+For anything from me
 
 ### Bridge I
 Bring back my lover, today  
