@@ -1,11 +1,11 @@
 ## Song Composition
 
-| Title | Key | Time | Tempo |
----
-| Autumn Seed | Bb Major | 4/4 | Allegro |
+| Title         | Key       | Time  | Tempo     |
+-------------------------------------------------
+| Autumn Seed   | Bb Major  | 4/4   | Allegro   |
 
 ### Pre-Verse
-`| I   ii   | iii  ii  `  x4
+`| I   ii   | iii  ii  ` x4
 
 ### Verse
 ```
