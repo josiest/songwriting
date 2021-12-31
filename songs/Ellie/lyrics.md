@@ -1,8 +1,8 @@
 ### Verse I
-~seemingly infinite  
-~well I draw from  
-~to lie through my teeth  
-~when talking to you
+~Seemingly infinite  
+~Well I draw from  
+~To lie through my teeth  
+~When talking to you
 
 ### Verse II
 ~And now that I've missed  
@@ -15,9 +15,9 @@ Ellie,
 ~Bring me down
 
 ### Verse III
-~Twelve jagged edges  
-Wouldn't match my pain  
-~From my own lack of courage
+~Now there's nothing I can think of  
+~That would match my pain  
+~From my own lack of courage  
 I now hold in vain
 
 ### Chorus
@@ -41,7 +41,7 @@ My love I cannot fall
 Any further
 
 ### Verse IV
-~My sweet mountainess  
+My sweet love of mine  
 I have not forgotten you  
-~Move on and be grateful  
+Move on and be happy  
 I owe it to you
