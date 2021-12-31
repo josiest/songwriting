@@ -1,8 +1,8 @@
 ### Verse I
 ~infinite wisdom  
 to lie to you  
-\--  
- --  
+..  
+..
 
 ~the pack of the hunter  
 caught up with the fox  
