@@ -12,10 +12,12 @@ I had one thing on my mind
 The morning would only come too soon
 
 ### Verse II
---
+~I didn't know how to process my
+~feelings for you
+~Were you a friend or a love
 
 Oh when you told me we  
-were never meant to be that way  
+~Were never meant to be that way  
 ~I cried the whole night through
 
 ### Chorus II
