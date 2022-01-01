@@ -12,8 +12,8 @@ I had one thing on my mind
 The morning would only come too soon
 
 ### Verse II
-~I didn't know how to process my
-~feelings for you
+~I didn't know how to process my  
+~feelings for you  
 ~Were you a friend or a love
 
 Oh when you told me we  
