@@ -11,23 +11,30 @@ I had one thing on my mind
 ~This moment will linger on  
 The morning would only come too soon
 
-### Verse II
-~I didn't know how to process my  
-~feelings for you  
-~Were you a friend or a love
+### Bridge I
+~In the weeks that followed  
+~I didn't know what to feel  
+~What connection did we have before  
+~But the more of you I had  
+~The more I wanted so bad
 
-Oh when you told me we  
-~Were never meant to be that way  
+### Verse II
+Oh in the winter  
+~When we were at the skating rink  
+I made myself into a fool
+
+When you told me we  
+That we were never meant to be  
 ~I cried the whole night through
 
 ### Chorus II
 I didn't know what to do  
 Because I'd fallen in love with you
 
+### Bridge/Interlude
+--
+
 ### Verse III
-Oh in the winter  
-~When we were at the skating rink  
-I made a fool of myself
 
 ~But since that day  
 ~You still showed to me the light inside  
