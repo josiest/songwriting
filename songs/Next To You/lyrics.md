@@ -12,11 +12,10 @@ I had one thing on my mind
 The morning would only come too soon
 
 ### Bridge I
-~In the weeks that followed  
-~I didn't know what to feel  
-~What connection did we have before  
-~But the more of you I had  
-~The more I wanted so bad
+~At first I didn't know what to feel  
+But every time that I saw you again  
+You showed me a new kind of light  
+~And I knew from then
 
 ### Verse II
 Oh in the winter  
