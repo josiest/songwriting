@@ -5,11 +5,11 @@ I found myself at your side
 
 Warmth and comfort  
 As you were lying next to me  
-I had one thing on my mind
+~I had one thing on my mind
 
 ### Chorus I
 ~This moment will linger on  
-The morning would only come too soon
+And morning would only come too soon
 
 ### Bridge I
 ~At first I didn't know what to feel  
