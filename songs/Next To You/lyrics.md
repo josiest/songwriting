@@ -46,7 +46,7 @@ Because I'd fallen in love with you
 ~If only I could bring them to an end
 
 ### Chorus III
-~But what more can I do
+~But what more can I do  
 I love you, I love you, I do  
 I love you, I love you, I do  
 I love you, I love you, I do
