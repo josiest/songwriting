@@ -32,16 +32,22 @@ I didn't know what to do
 Because I'd fallen in love with you
 
 ### Bridge/Interlude
---
+~And in the months that followed  
+~We still held our love platonic  
+~You showed to me the light inside  
+~That cast all my shadows aside
 
 ### Verse III
+~But all of the time  
+~My feelings only grew for you  
+~Despite my best attempts
 
-~But since that day  
-~You still showed to me the light inside  
-~That cast all my shadows away
+~To keep them inside  
+~The strongest pain that I'd endure  
+~To suppress my love for you
 
 ### Chorus III
-~In spite of me trying not to  
-I love you, I love you, I do  
+~I'd move on if I only could
+But I love you, I love you, I do  
 I love you, I love you, I do  
 I love you, I love you, I do
