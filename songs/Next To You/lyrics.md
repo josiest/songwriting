@@ -31,7 +31,7 @@ That we were never meant to be
 I didn't know what to do  
 Because I'd fallen in love with you
 
-### Bridge/Interlude
+### Bridge II
 ~And in the months that followed  
 ~We still held our love platonic  
 ~You showed to me the light inside  
@@ -47,7 +47,7 @@ Because I'd fallen in love with you
 ~To suppress my love for you
 
 ### Chorus III
-~I'd move on if I only could
+~I'd move on if I only could  
 But I love you, I love you, I do  
 I love you, I love you, I do  
 I love you, I love you, I do
