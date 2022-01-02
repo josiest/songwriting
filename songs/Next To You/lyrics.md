@@ -43,10 +43,10 @@ Because I'd fallen in love with you
 
 ~To keep them inside  
 ~The strongest pain that I'd endure  
-~To suppress my love for you
+~If only I could bring them to an end
 
 ### Chorus III
-~I'd move on if I only could  
-But I love you, I love you, I do  
+~But what more can I do
+I love you, I love you, I do  
 I love you, I love you, I do  
 I love you, I love you, I do
