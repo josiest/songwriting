@@ -31,8 +31,8 @@ I didn't know what to do
 Because I'd fallen in love with you
 
 ### Bridge II
-~And in the months that followed  
-~We still held our love platonic  
+~But we'd carry on  
+~Sharing with each other a love platonic  
 ~You showed to me the light inside  
 ~That cast all my shadows aside
 
