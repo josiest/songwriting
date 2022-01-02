@@ -37,16 +37,16 @@ Because I'd fallen in love with you
 ~That cast all my shadows aside
 
 ### Verse III
-~But all of the time  
-~My feelings only grew for you  
-~Despite my best attempts
+But all of the time  
+My feelings only grew for you  
+Despite my best attempts
 
-~To keep them inside  
-~The strongest pain that I'd endure  
-~If only I could bring them to an end
+To keep them inside  
+The strongest pain that I'd endure  
+If only I could bring them to an end
 
 ### Chorus III
-~But what more can I do  
+But what more can I do  
 I love you, I love you, I do  
 I love you, I love you, I do  
 I love you, I love you, I do
