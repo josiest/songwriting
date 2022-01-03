@@ -10,8 +10,8 @@ And I realize how
 You're old and wise now  
 But you still seem  
 But you still seem  
-~To have fallen from
-~The radiance I used to know
+~To have the bite of
+~The jaws of a dragon
 
 Your frozen breath  
 Has filled my lungs again
@@ -24,12 +24,12 @@ The freezing snow and
 ~So tell me what's happening
 ~To the beauty that you hold in store
 
-~The warming hearth we seek  
+~And today I see  
 Sacred geometries  
-falling from  
+Descending from  
 The heavens above  
-~But with each passing year  
-~You fall further more
+Are falling ever more  
+~Frequently than before
 
 Your frozen breath  
 Will fill our lungs in the end
@@ -42,12 +42,12 @@ Will fill our lungs in the end
 Summer, what a dream  
 Summer, what a dream  
 A hazy sky  
-From distant fires  
+~From distant fires  
 Will you tell me again  
 ~What brought upon your burning wrath
 
-~The daylight skies become
-~Painted red from
+The daylight skies become
+Painted red from
 The evergreen
 Dancing trees
 Like winter you generously
