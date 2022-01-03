@@ -24,14 +24,14 @@ A hazy sky
 Will you tell me again  
 ~What brought upon your burning wrath
 
-The daylight skies become
-Painted red from
-The evergreen
-Dancing trees
-Like winter you generously
+The daylight skies become  
+Painted red from  
+The evergreen  
+Dancing trees  
+Like winter you generously  
 Bring snow from the heavens above
 
-Your burning breath
+Your burning breath  
 Will fill our lungs in the end
 
 ### Bridge
