@@ -10,8 +10,8 @@ And I realize how
 You're old and wise now  
 But you still seem  
 But you still seem  
-To have the life of  
-~Our familiar molten core
+~To have fallen from
+~The radiance I used to know
 
 Your frozen breath  
 Has filled my lungs again
@@ -21,23 +21,37 @@ You bring the cold and
 The freezing snow and  
 ~With bated breath  
 ~We wait for your end  
-~But I can now only see  
-The beauty that you have in store
+~So tell me what's happening
+~To the beauty that you hold in store
 
 ~The warming hearth we seek  
-~After sacred geometries  
-Have fallen from  
+Sacred geometries  
+falling from  
 The heavens above  
 ~But with each passing year  
-~You suffer from our selfishness
+~You fall further more
 
 Your frozen breath  
-~will fill our lungs in the end
+Will fill our lungs in the end
 
 ### Bridge
 
-~
+--
 
 #### Verse III
+Summer, what a dream  
+Summer, what a dream  
+A hazy sky  
+From distant fires  
+Will you tell me again  
+~What brought upon your burning wrath
 
---
+~The daylight skies become
+~Painted red from
+The evergreen
+Dancing trees
+Like winter you generously
+Bring snow from the heavens above
+
+Your burning breath
+Will fill our lungs in the end
