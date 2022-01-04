@@ -21,15 +21,15 @@ Summer, what a dream
 Summer, what a dream  
 A hazy sky  
 ~From distant fires  
-Will you tell me again  
+Do tell me, my old friend
 ~What brought upon your burning wrath
 
-The daylight skies become  
+The daylight sky becomes  
 Painted red from  
 The evergreen  
 Dancing trees  
 Like winter you generously  
-Bring snow from the heavens above
+Send your gift like snow from above
 
 Your burning breath  
 Will fill our lungs in the end
