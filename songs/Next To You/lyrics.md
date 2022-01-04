@@ -22,7 +22,7 @@ Oh in the winter
 ~When we were at the skating rink  
 I made myself into a fool
 
-When you told me we  
+When you told me  
 That we were never meant to be  
 ~I cried the whole night through
 
