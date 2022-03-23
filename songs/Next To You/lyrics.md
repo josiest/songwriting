@@ -24,29 +24,29 @@ That we just weren't meant to be
 I didn't know what to do  
 Because I'd fallen in love with you
 
-### Bridge I
-~At first I didn't know what to feel  
-But every time that I saw you again  
-You showed me a new kind of light  
+### Bridge
+
+Yet since that day
+~You showed me the way  
+~And I didn't know how to feel  
+~But every time that I saw you again  
+~You showed me a new kind of light  
 ~And I knew from then
 
 ### Verse III
+Oh at each other's sides  
+Time and time again  
+~A love that we shared so pure
 
-Oh at each other's sides
-Time and time again
-...
-
-And over time
-You'd become my closest friend
-...
+And over time  
+You'd become so close a friend  
+But I still wanted so much more
 
 ### Chorus II
-
-...
-...
+~I tried every night  
+~To push my feelings aside
 
 ### Verse IV
-
 But all of the time  
 My feelings only grew for you  
 Despite my best attempts
@@ -56,7 +56,6 @@ The strongest pain that I'd endure
 If only I could bring them to an end
 
 ### Chorus IV
-
 But what more can I do  
 I love you, I love you, I do  
 I love you, I love you, I do  
