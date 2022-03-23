@@ -12,8 +12,8 @@ As you were lying next to me
 And morning would only come too soon
 
 ### Verse II
-Oh when the winter
-Found us walking at each other's sides
+Oh when the winter  
+Found us walking at each other's side  
 I made myself into a fool
 
 When you told me  
@@ -25,9 +25,9 @@ I didn't know what to do
 Because I'd fallen in love with you
 
 ### Bridge
-Yet since that day
-...
-And I didn't know how to feel  
+Yet since that day  
+Our paths were intertwined  
+And at first I didn't know how to feel  
 But every time that I saw you again  
 You showed me a new kind of light  
 ~And I knew from then
@@ -42,7 +42,7 @@ You'd become so close a friend
 But I still wanted so much more
 
 ### Chorus II
-Lord knows how I've tried
+Lord knows how I've tried  
 ~To cast my feelings aside
 
 ### Verse IV
