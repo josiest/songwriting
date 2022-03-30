@@ -2,11 +2,12 @@
 
 ### Chorus
 Oh I want so badly to behold  
-The fire that lights my path away  
+The light that shines my path away  
 From darkness all around
 
 But oh, ain't it so  
 Just out of my reach that I
-Can hardly see the light of day
+Can hardly see it shining through
+...
 
 ### Verse II
