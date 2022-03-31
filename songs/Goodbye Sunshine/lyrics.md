@@ -15,7 +15,7 @@ Set a fire between the sea
 
 That separates the skyline  
 You fall silently beneath  
-Goodbye sunshine
+Goodbye sunshine  
 Goodbye sunshine
 
 ### Verse II
@@ -30,10 +30,12 @@ It almost feels the same
 ~As the sun that came
 
 But she's gone  
-She's out of sight
+She's out of sight  
 ~She left me trembling in the dark
 
 And I'm struggling to find  
 Any light that she left behind  
 Goodbye sunshine  
 Goodbye sunshine
+
+###
