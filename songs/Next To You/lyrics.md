@@ -1,49 +1,49 @@
 ### Verse I
 Oh when the summer  
-Found us in the night calm and quiet  
+Found us in the night, calm and quiet  
 I found myself at your side
 
-Warmth and comfort  
-As you were lying next to me  
-~I had one thing on my mind
+Warmth and comfort from  
+Your body lying next to mine  
+A thought had its ~grasp on my mind
 
 ### Chorus I
-~This moment will linger on  
-And morning would only come too soon
+This moment will linger on  
+But morning would only come too soon
 
 ### Verse II
 Oh when the winter  
 Found us walking at each other's side  
 I made myself into a fool
 
-When you told me  
-That we just weren't meant to be  
-~I cried the whole night through
+With all of my ignorance  
+Before you, it was clear to see 
+That I just wasn't meant for you
 
 ### Chorus II
-I didn't know what to do  
-Because I'd fallen in love with you
+Though my heart was torn in two   
+I'd fallen in love with you
 
 ### Bridge
-Yet since that day  
-Our paths were intertwined  
-And at first I didn't know how to feel  
-But every time that I saw you again  
-You showed me a new kind of light  
+~Yet since that day  
+~Our paths were intertwined  
+~And at first I didn't know how to feel  
+~But every time that I saw you again  
+~You showed me a new kind of light  
 ~And I knew from then
 
 ### Verse III
 Oh at each other's side  
 Time and time again  
-The love that we shared, so pure
+~The love that we shared, so pure
 
-And over time  
-You'd become so close a friend  
+~And over time  
+~You'd become so close a friend  
 But I still wanted so much more
 
 ### Chorus II
 Lord knows how I've tried  
-~To cast my feelings aside
+To cast my feelings aside
 
 ### Verse IV
 But all of the time  
