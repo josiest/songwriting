@@ -1,7 +1,7 @@
 ### Verse I
-Oh when the summer  
-Found us in the night, calm and quiet  
-I found myself at your side
+Oh when the summer found us  
+In the night, calm and quiet, I  
+Found myself at your side
 
 Warmth and comfort from  
 Your body lying next to mine  
@@ -12,8 +12,8 @@ This moment will linger on
 But morning would only come too soon
 
 ### Verse II
-Oh when the winter  
-Found us walking at each other's side  
+Oh when the winter found us  
+walking at each other's side  
 I made myself into a fool
 
 With all of my ignorance  
