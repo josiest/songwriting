@@ -18,7 +18,7 @@ I made myself into a fool
 
 With all of my ignorance  
 Before you, it was clear to see  
-That I just wasn't meant for you
+~That I just wasn't meant for you
 
 ### Chorus II
 Though my heart was torn in two   
