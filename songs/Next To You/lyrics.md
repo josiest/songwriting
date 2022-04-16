@@ -5,7 +5,7 @@ I found myself at your side
 
 Warmth and comfort from  
 Your body lying next to mine  
-A thought had its ~grasp on my mind
+The touch of your breath on my mind
 
 ### Chorus I
 This moment will linger on  
@@ -25,12 +25,12 @@ Though my heart was torn in two
 I'd fallen in love with you
 
 ### Bridge
-~Yet since that day  
-~Our paths were intertwined  
-~And at first I didn't know how to feel  
-~But every time that I saw you again  
-~You showed me a new kind of light  
-~And I knew from then
+But every time that I saw you again  
+You showed me a new kind of light, and I  
+...  
+...  
+...  
+... 
 
 ### Verse III
 Oh at each other's side  
