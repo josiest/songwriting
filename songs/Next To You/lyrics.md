@@ -17,7 +17,7 @@ Found us walking at each other's side
 I made myself into a fool
 
 With all of my ignorance  
-Before you, it was clear to see 
+Before you, it was clear to see  
 That I just wasn't meant for you
 
 ### Chorus II
