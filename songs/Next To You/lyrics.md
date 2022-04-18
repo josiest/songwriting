@@ -1,7 +1,7 @@
 ### Verse I
 Oh when the summer found us  
-In the night, calm and quiet, I  
-Found myself at your side
+In the night, calm and quiet  
+I found myself at your side
 
 Warmth and comfort from  
 Your body lying next to mine  
@@ -28,8 +28,8 @@ I'd fallen in love with you
 But every time that I saw you again  
 Every night you and I would spend  
 To hold you in my arms again  
-...  
-...  
+~Is what I would long for from you, my dear friend  
+~You showed me a new kind of light  
 ... 
 
 ### Verse III
