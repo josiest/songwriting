@@ -2,8 +2,8 @@
 Winter, my love  
 Winter, my love  
 Surprised to see  
-You lingering
-~In the light of the door    
+You lingering  
+~In the light of the door  
 Where Spring would greet us before
 
 ~And today I see  
@@ -21,7 +21,7 @@ Summer, what a dream
 Summer, what a dream  
 A hazy sky  
 ~From distant fires  
-Do tell me, my old friend
+Do tell me, my old friend  
 ~What brought upon your burning wrath
 
 The daylight sky becomes  
