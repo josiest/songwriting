@@ -1,9 +1,9 @@
 ### Verse I
 Winter, my love  
 Winter, my love  
-~What brings you here  
-~So late in the year  
-~You stand in the light of the door    
+Surprised to see  
+You lingering
+~In the light of the door    
 Where Spring would greet us before
 
 ~And today I see  
