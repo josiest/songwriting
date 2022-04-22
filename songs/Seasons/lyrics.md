@@ -1,17 +1,17 @@
 ### Verse I
 Winter, my love  
 Winter, my love  
-I know you've seen  
-I know you've seen  
-The heart of my dear earth  
-Fiery as life ever was
+~What brings you here  
+~So late in the year  
+~You stand in the light of the door    
+Where Spring would greet us before
 
 ~And today I see  
 Sacred geometries  
 Descending from  
 The heavens above  
-Falling ever more  
-~Frequently than before
+A journey made ever more  
+Frequently than before
 
 Your frozen breath  
 Will fill our lungs in the end
