@@ -43,8 +43,10 @@ The patterns we've fallen into
 Have only caused me harm  
 ~And you disdain  
 The mess that I have left for you again  
-~It isn't worth the trouble  
-~And now I've lost you for good
+Is more trouble than it's worth  
+~Now it's salt under the earth  
+...  
+...
 
 ### Verse III
 So goodbye Sunshine  
@@ -53,7 +55,7 @@ So goodbye Sunshine
 For you cannot stay
 
 And it seems like  
-I'll never get to see you again  
+I may never see you again
 But it will be okay  
 Because another day
 
@@ -61,6 +63,6 @@ Will arise
 On the horizon  
 Casting light onto the sea
 
-~But for now there's only darkness  
+~Where now there's only darkness  
 ~And beyond, I cannot see  
 Goodbye sunshine
