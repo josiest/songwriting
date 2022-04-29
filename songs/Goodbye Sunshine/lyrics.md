@@ -43,10 +43,10 @@ The patterns we've fallen into
 Have only caused me harm  
 ~And you disdain  
 The mess that I have left for you again  
-Is more trouble than it's worth  
-~Now it's salt under the earth  
-...  
-...
+~Is yet another pain I've caused  
+And I'm more trouble than I'm worth  
+And so you say goodbye  
+And so you set under the sky
 
 ### Verse III
 So goodbye Sunshine  
