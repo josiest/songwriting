@@ -55,14 +55,14 @@ So goodbye Sunshine
 For you cannot stay
 
 And it seems like  
-I may never see you again
+I may never see you again  
 But it will be okay  
 Because another day
 
 Will arise  
 On the horizon  
-Casting light onto the sea
+Casting light upon the sea
 
-~Where now there's only darkness  
+~But for now there's only darkness  
 ~And beyond, I cannot see  
 Goodbye sunshine
