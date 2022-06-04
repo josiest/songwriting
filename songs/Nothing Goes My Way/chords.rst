@@ -22,11 +22,12 @@ Chorus
 
 ::
 
-  | I        | V    IV  | IV
-  | iii      | ii       | V        | V
-  | I        | V    IV  | IV
-  | iii      | ii       | V        | V
+  | I        | V   | IV        | IV
+  | iii      | ii        | V        | V
+  | I        | V   | IV        | IV
+  | iii      | ii        | V        | V
                       
-  | ii       | iii  IV  | IV
-  | ii       | iii  IV  | IV
-  | ii       | V        | IV   V   | I
+  | ii       | iii | IV        | IV
+  | ii       | iii | IV        | IV
+  | ii       | V
+  | IV       | V   | I
