@@ -1,5 +1,5 @@
 ### Verse I
-Oh when the summer found us  
+When the summer found us  
 In the night, calm and quiet  
 I found myself at your side
 
@@ -8,38 +8,38 @@ Your body lying next to mine
 The touch of your breath on my mind
 
 ### Chorus I
-This moment will linger on  
+And this moment would linger on  
 But morning would only come too soon
 
 ### Verse II
-Oh when the winter found us  
+When the winter found us  
 walking at each other's side  
 I made myself into a fool
 
 With all of my ignorance  
 Before you, it was clear to see  
-~That I just wasn't meant for you
+That I just wasn't meant for you
 
 ### Chorus II
-Though my heart was torn in two   
-I'd fallen in love with you
+So my heart was torn in two  
+How can I resign my love for you
 
 ### Bridge
 But every time that I saw you again  
 Every night you and I would spend  
 To hold you in my arms again  
-~Is what I would long for from you, my dear friend  
-~You showed me a new kind of light  
-... 
+Is what I so longed for from you, my friend  
+To spend all my nights next to you  
+A fantasy never to come true
 
 ### Verse III
-Oh at each other's side  
+At each other's side  
 Time and time again  
-~The love that we shared, so pure
+Our love, so innocent and pure
 
-~And over time  
-~You'd become so close a friend  
-But I still wanted so much more
+Yet every night we'd spend  
+Together had my heart condemned  
+For I desired so much more
 
 ### Chorus II
 Lord knows how I've tried  

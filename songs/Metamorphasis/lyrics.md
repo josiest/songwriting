@@ -16,8 +16,8 @@ But as the shadows leaning over me
 Start transforming, I no longer know what's true
 
 Buried somewhere in the grains of dirt  
-~The muscles in my eyes become free  
-~They open, I start to feel my body  
+My eyes once tightened shut, now open free  
+~Slowly, I start to feel my body  
 ~Return to me
 
 ### Verse B.I
@@ -83,3 +83,9 @@ I am only a seed
 I look up to the sun  
 Behind all the weeds  
 I look up and there's none
+
+I am only a child  
+And my eyes have only just opened  
+To a whole 'nother reality  
+I don't know  
+Fo I am only a child
