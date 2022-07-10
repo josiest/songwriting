@@ -25,12 +25,12 @@ So my heart was torn in two
 How can I resign my love for you
 
 ### Bridge
-But every time that I saw you again  
+But every time ~that I saw you again  
 Every night you and I would spend  
-To hold you in my arms again  
-Is what I so longed for from you, my friend  
+To hold you in my arms again;  
+The fulcrum desire of you, how I long  
 To spend all my nights next to you  
-A fantasy never to come true
+~A fantasy never to come true
 
 ### Verse III
 At each other's side  
