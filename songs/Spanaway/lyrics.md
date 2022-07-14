@@ -1,29 +1,26 @@
 ### Verse I
 
-Now I find myself upon the end  
+So I find myself upon the end  
 Of the road I've been on  
-Here I thought I'd settled down  
-After drifting for so long  
+And what a foolish thought that I  
+Could settle after long
 
-But rent is due and I'm still looking
+But rent is due and I'm still looking  
 For another job  
 For the one I couldn't keep  
 Would have been the death of me  
 
 ### Pre-Chorus I
 
-~I look around and all I see  
-~Are strangers to me, Oh how I know  
-~That there's nothing left here  
-~For me anymore  
+~I look around and  
+~All I see are strangers to me  
+There's nothing left here
+For me anymore and I know
 
-But I know that the answer's
-Been Sitting in front of me  
-All along
-
-And I can't keep ignoring  
-The eventuality  
-Of going home
+That the answer's been  
+~Sitting in front of me all along  
+And I can't keep ignoring the  
+Eventuality of going home
 
 ### Chorus I
 
@@ -37,22 +34,29 @@ City, nothing's gonna change
 In Spanaway, I'll count my days  
 Until the sun goes down
 
+### Verse II
+
+Now I'm sitting in the passenger seat
+Of my mother's car  
+And silence is the soundtrack of  
+The road we've seen so far
+
+And we haven't really spoken in  
+A year or maybe more  
+But now we drive to Spanaway  
+Two hundred miles far
+
 ### Pre-Chorus II
 
-Now that I'm sitting in  
-The passenger seat of my mother's car  
-As we drive to a city  
-That's two hundred miles far
+~I speak my mind, for I  
+~Know it will come up eventually  
+We discuss how I dress  
+Differently These days, for I know
 
-We discuss how I dress
-Differently these days, for I know
-Her religion tells her
-To see me in shame
-But she says
-
-I may not understand,
-But I'll love you any way
-You present
+Her religion tells her  
+To see me in shame, but she says  
+I may not understand, but I'll  
+Love you any way you present
 
 ### Chorus II
 
@@ -68,12 +72,12 @@ I'll find another start
 
 ### Chorus III
 
-And yes, I have my flaws
+And yes, I have my flaws  
 But I'm working on them everyday  
-Oh I can change, ~I know it
+Oh I can change, ~I know it  
 I just need a little help
 
 But for now it's all I can  
 To keep myself ~from losing it  
-In Spanaway where I am slowly
+In Spanaway where I am slowly  
 ~Rotting in the ground
