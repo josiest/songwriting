@@ -78,6 +78,6 @@ Oh I can change, ~I know it
 I just need a little help
 
 But for now it's all I can  
-To keep myself ~from losing it  
+To make it through anotehr day  
 In Spanaway where I am slowly  
 ~Rotting in the ground
