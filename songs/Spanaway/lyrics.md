@@ -1,7 +1,7 @@
 ### Verse I
 
-So I find myself upon the end  
-Of the road I've been on  
+So I find myself upon the end of  
+The road I've been on  
 And what a foolish thought that I  
 Could settle after long
 
@@ -14,7 +14,7 @@ Would have been the death of me
 
 ~I look around and  
 ~All I see are strangers to me  
-There's nothing left here
+There's nothing left here  
 For me anymore and I know
 
 That the answer's been  
@@ -26,7 +26,7 @@ Eventuality of going home
 
 And so I'll pack my bags  
 And I'll move back to Spanaway  
-Where I will lay eventually
+Where I will lay eventually  
 Underneath the ground
 
 For I know in this god-forsaken  
@@ -36,7 +36,7 @@ Until the sun goes down
 
 ### Verse II
 
-Now I'm sitting in the passenger seat
+Now I'm sitting in the passenger seat  
 Of my mother's car  
 And silence is the soundtrack of  
 The road we've seen so far
@@ -67,7 +67,7 @@ Is falling apart
 
 For I know this fucking god-forsaken  
 City is a prison cell  
-But oh well, in Spanaway
+But oh well, in Spanaway  
 I'll find another start
 
 ### Chorus III
