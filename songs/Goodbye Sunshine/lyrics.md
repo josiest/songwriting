@@ -25,9 +25,9 @@ You've been lingering for a while
 Now you're here to stay  
 But it seems okay
 
-If I hold your  
-Outstretched arm close to my heart  
-It almost feels the same  
+~If I hold your  
+~Outstretched arm close to my heart  
+~It almost feels the same  
 ~As the sun that came
 
 But she's gone  
@@ -41,10 +41,12 @@ Goodbye sunshine
 ### Bridge
 If only I could undo  
 The trouble I have caused  
-The patterns we've fallen into  
+The patterns I've dragged you into  
 Have only caused us harm  
+
 And I'm ashamed  
 The mess that I have left for you again  
+
 Is yet another verse  
 In a song that isn't worth  
 The trouble left behind  
@@ -63,7 +65,7 @@ Because another day
 
 Will arise  
 On the horizon  
-Casting light upon the sea
+Shedding light upon this sea
 
 ~But for now there's only darkness  
 ~And beyond, I cannot see  
