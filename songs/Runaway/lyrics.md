@@ -15,7 +15,7 @@ In the dead of night
 I will be lying awake  
 Planning ways I can escape
 
-It won't take much time  
+And it won't take much time  
 To leave my home  
 Now the future's unknown
 
@@ -29,8 +29,7 @@ And everybody will know
 That I'm gonna hit the road  
 Never gonna do what I'm told  
 I'm gonna fly through the night  
-I'm gonna lie to my parents outright  
-That's right
+And leave this fucking place behind  
 
 And it could take all day  
 Yeah it could take up all of the night  
@@ -38,35 +37,35 @@ To find, gotta find my way
 If it takes up all of the night
 
 ### Verse II
-Well life just ain't as easy  
-As it's made out to be  
-They say if you can believe
+And I must have it easy  
+Or so I'm made to believe  
+That in my youth I am free
 
-Then it'll all come easy  
-But it wasn't for me  
-Even if I believed
+But I don't find it easy  
+To be constantly  
+In the shadow of weeds
 
-And I'm gettin tired  
-Of all this crap that I pull  
-To please the system  
-You know, it's not very cool  
-Now I know   
+Yeah, I'm gettin tired  
+Of all this shit that I pull  
+To appease the system  
+~I'm gonna flunk out of school  
+Oh I know   
 
 ### Chorus III
-That I'm gonna hit the road  
+So I'm gonna hit the road  
 Never gonna do what I'm told  
 I'm gonna fly through the night  
-I'm gonna lie to my parents outright  
-That's right
+And leave all of my worries behind
 
-I'm gonna make my way  
-Across the whole United States
-I'm gonna pave the path of fame  
-And everybody's gonna know my name  
-I'm gonna put all those who doubt me to shame
+I'm gonna run away  
+And I won't look back this time  
+I'm gonna pave my own way  
+And I'll sing to the god up high  
+That your lies are no longer mine
+Uh huh
 
 ### Chorus IV
-That I'm gonna hit the road  
+I'm gonna hit the road  
 Never gonna do what I'm told  
 I'm gonna fly through the night  
 I'm gonna lie to my parents outright  
@@ -75,5 +74,5 @@ That's right
 And it could take all day  
 Yeah, it could take up all of the night  
 But I won't continue to stay  
-In the same place all of my life  
+In this lie of a life ~anymore  
 That's right
