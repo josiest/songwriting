@@ -61,7 +61,7 @@ I'm gonna run away
 And I won't look back this time  
 I'm gonna pave my own way  
 And I'll sing to the god up high  
-That your lies are no longer mine
+That your lies are no longer mine  
 Uh huh
 
 ### Chorus IV
