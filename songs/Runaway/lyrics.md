@@ -2,34 +2,34 @@
 I think I'm gonna hit the road  
 Never gonna do what I'm told  
 I'm gonna fly through the night  
-I'm gonna lie to my parents outright  
-That's right
+~I'm gonna lie to my parents outright  
+~That's right
 
-I'm gonna make my way  
-Across the whole United States  
-I'm gonna pave the path of fame  
-And everybody's gonna know my name
+~I'm gonna make my way  
+~Across the whole United States  
+~I'm gonna pave the path of fame  
+~And everybody's gonna know my name
 
 ### Verse I
 In the dead of night  
 I will be lying awake  
 Planning ways I can escape
 
-And it won't take much time  
+It won't take much time  
 To leave my home  
 Now the future's unknown
 
-I can climb out my window  
-To the ground below  
-And pack up my clothes  
-Get on my bike  
-And everybody will know
+~I can climb out my window  
+~To the ground below  
+~And pack up my clothes  
+~Get on my bike  
+~And everybody will know
 
 ### Chorus II
 That I'm gonna hit the road  
 Never gonna do what I'm told  
 I'm gonna fly through the night  
-And leave this fucking place behind  
+And leave this ~fucking place behind  
 
 And it could take all day  
 Yeah it could take up all of the night  
@@ -46,19 +46,19 @@ To be constantly
 In the shadow of weeds
 
 Yeah, I'm gettin tired  
-Of all this shit that I pull  
-To appease the system  
+~Of all this shit that I pull  
+~To appease the system  
 ~I'm gonna flunk out of school  
-Oh I know   
+~Oh I know   
 
 ### Chorus III
 So I'm gonna hit the road  
 Never gonna do what I'm told  
 I'm gonna fly through the night  
-And leave all of my worries behind
+~And leave all of my worries behind
 
-And it could take all day  
-Yeah, it could take up all of the night  
+~And it could take all day  
+~Yeah, it could take up all of the night  
 And I'll sing to the heavens on high  
 The only hymn that I know how to write  
 That your lies are no longer mine  
