@@ -57,10 +57,10 @@ Never gonna do what I'm told
 I'm gonna fly through the night  
 And leave all of my worries behind
 
-I'm gonna run away  
-And I won't look back this time  
-I'm gonna pave my own way  
-And I'll sing to the god up high  
+And it could take all day  
+Yeah, it could take up all of the night  
+And I'll sing to the heavens on high  
+The only hymn that I know how to write  
 That your lies are no longer mine  
 Uh huh
 
@@ -68,11 +68,10 @@ Uh huh
 I'm gonna hit the road  
 Never gonna do what I'm told  
 I'm gonna fly through the night  
-I'm gonna lie to my parents outright  
-That's right
+And leave this ~fucking place behind
 
-And it could take all day  
-Yeah, it could take up all of the night  
-But I won't continue to stay  
-In this lie of a life ~anymore  
+I'm gonna run away  
+And I won't look back this time  
+No, I won't continue to stay  
+~Constrained by dogmas and lies  
 That's right
