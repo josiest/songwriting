@@ -36,8 +36,8 @@ But this is how you feel
 
 ### Chorus I
 
-But now I feel I'm maybe over
-Everything about you  
+But now I feel I'm maybe over  
+How I felt about you  
 Because I'm such a fucking mess  
 Whenever I'm around you
 
