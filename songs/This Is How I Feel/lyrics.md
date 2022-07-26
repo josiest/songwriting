@@ -34,7 +34,7 @@ But this is how you feel
 ~Like I'm a fucking loser  
 ~'Cause I can't get over you
 
-### Chorus
+### Chorus I
 
 But now I feel I'm maybe over
 Everything about you  
@@ -54,9 +54,44 @@ Wanna be around you
 ### Verse III
 
 But now, you're giving me a chance  
-And I'll be honest, I don't  
-Understand your stance  
-'Cause it feels like you just  
-Want me off your back
+Though this olive branch  
+Is wilted, old, and cracked  
+~And I don't know if I'm okay with it
 
-I'd be okay with that  
+~What else can I do  
+'Cause I'm the one that  
+Keeps bothering you  
+Do I say it's about time  
+And leave it all behind
+
+But it would be untrue  
+'Cause this is how I feel  
+~Like I wanna make things right  
+~Again somehow
+
+### Chorus II
+
+'Cause long ago you told me that you  
+Thought that we'd grow into  
+A pair of old friends, and I still wanna  
+See that vision come true
+
+And I'm so over feeling like  
+A fucking loser, it's true  
+I just want some peace of mind  
+But I'm a fucking mess around you
+
+And I don't wanna deal with this shit  
+Any more, I'm tellin' you  
+But all of these memories I have of you  
+Haunt me every year or two
+
+I just wanna be free from  
+The pain I feel when they do  
+But then I get so confused  
+'Cause I still wanna be around you
+
+I'm sorry I dragged you in this  
+It was selfish of me to do  
+I just got confused 'cause I still  
+Wanna be around you
