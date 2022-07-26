@@ -59,7 +59,7 @@ Is wilted, old, and cracked
 ~And I don't know if I'm okay with it
 
 ~What else can I do  
-'Cause I'm the one that  
+'Cause I'm the one who  
 Keeps bothering you  
 Do I say it's about time  
 And leave it all behind
@@ -67,19 +67,19 @@ And leave it all behind
 But it would be untrue  
 'Cause this is how I feel  
 ~Like I wanna make things right  
-~Again somehow
+~Again with you
 
 ### Chorus II
 
 'Cause long ago you told me that you  
 Thought that we'd grow into  
-A pair of old friends, and I still wanna  
+Old friends, and maybe I still wanna  
 See that vision come true
 
 And I'm so over feeling like  
 A fucking loser, it's true  
-I just want some peace of mind  
-But I'm a fucking mess around you
+I want some peace of mind but I'm  
+A fucking mess around you
 
 And I don't wanna deal with this shit  
 Any more, I'm tellin' you  
