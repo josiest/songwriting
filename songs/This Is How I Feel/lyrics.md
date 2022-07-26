@@ -43,7 +43,7 @@ Whenever I'm around you
 
 And I don't wanna deal with this shit  
 Any more than you do  
-I just wanna be free from
+I just wanna be free from  
 The pain I feel when I think about you
 
 And I'm sorry I dragged you in this  
@@ -53,12 +53,10 @@ Wanna be around you
 
 ### Verse III
 
-Now, you're giving me a chance  
-~But it feels like you just  
-~Want me off your back  
-But maybe I'm  
-Okay with that
+But now, you're giving me a chance  
+And I'll be honest, I don't  
+Understand your stance  
+'Cause it feels like you just  
+Want me off your back
 
-Cause I'm over you  
-I'm over all the shit  
-I put us through  
+I'd be okay with that  
