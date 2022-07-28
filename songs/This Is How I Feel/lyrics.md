@@ -36,7 +36,7 @@ Like I'm a fucking loser
 
 ### Chorus I
 
-But now I hope I'm finally over  
+But now I think I might be over  
 How I felt about you  
 Because I'm such a fucking mess  
 Whenever I'm around you
@@ -51,8 +51,13 @@ The pain I feel when they do
 'Cause every fucking time I feel  
 Like I still wanna be around you
 
-And I'm sorry I dragged you in this  
-It was selfish of me to do  
+But I know how you must feel  
+Because I think I'm feeling it too  
+That all this weight I'm carrying  
+Sucks to just dump on you
+
+So I'm sorry I dragged you along  
+It was selfish of me it's true  
 I just got confused 'cause I  
 Wanted to be around you
 
@@ -87,7 +92,7 @@ Keeps bothering you
 Do I say it's about time  
 And leave it all behind
 
-But it would be untrue  
+But I don't want to  
 'Cause this is how I feel  
 ~Like I wanna make things right  
 ~Again with you
@@ -99,22 +104,27 @@ Thought that we'd grow into
 Old friends, and maybe I still wanna  
 See that vision come true
 
-And I'm so over feeling like  
-A fucking loser, it's true  
-I want some peace of mind but I'm  
+But I'm so over feeling like  
+A fucking loser for you  
+I just want some peace of mind but I'm  
 A fucking mess around you
 
 And I don't wanna deal with this shit  
-Any more, I'm tellin' you  
+Any more, yeah I'm through  
 But all of these memories I have of you  
 Haunt me every year or two
 
-I just wanna be free from  
+And I just wanna be free of  
 The pain I feel when they do  
-But then I get so confused  
-'Cause I still wanna be around you
+'Cause everything is so confusing  
+When I wanna be around you
 
-I'm sorry I dragged you in this  
-It was selfish of me to do  
-I just got confused 'cause I still  
-Wanna be around you
+But I know how you must feel  
+Because I think I'm feeling it too  
+That all this weight I'm carrying  
+I shouldn't have put on you
+
+So I'm sorry I dragged you along  
+It was selfish of me, it's true  
+I just got confused 'cause I  
+Wanted to be around you
