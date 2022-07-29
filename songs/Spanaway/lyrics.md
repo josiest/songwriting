@@ -1,26 +1,31 @@
 ### Verse I
 
 So I find myself upon the end of  
-The road I've been on  
-And what a foolish thought that I  
-Could settle after long
+This road I've been on  
+Ooh, what a fool I was to think
+
+That I could settle after all  
+The drifting of a vagabond  
+Like me, Who'd believe it ~but for me
 
 But rent is due and I'm still looking  
 For another job  
-For the one I couldn't keep  
-Would have been the death of me  
+~For the one I couldn't keep  
+~Would have been the death of me  
 
 ### Pre-Chorus I
 
-~I look around and  
-~All I see are strangers to me  
-There's nothing left here  
-For me anymore and I know
+I look around and  
+All I see are strangers to me  
+And I wonder if there's any reason    
+For me to be lingering  
 
-That the answer's been  
-~Sitting in front of me all along  
-And I can't keep ignoring the  
-Eventuality of going home
+No there's nothing left here  
+For me anymore, but I know
+~That beyond this dark horizon  
+~There's an old and broken home  
+With a name etched in the paint  
+~That I've drowned away but now I face its ghost
 
 ### Chorus I
 
